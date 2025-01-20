@@ -2,7 +2,7 @@
 
 *Welcome! Before you dive into this comprehensive guide, we’re excited to offer you access to a **FREE Xbox Gift Card Code**. Yes, you read that right – you can claim your own Xbox Gift Card Code by following the instructions at the end of this article! This guide is designed not only to provide you with valuable information about Xbox Gift Cards but also to help you discover how to get **free Xbox Gift Card Codes** in 2025!*
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 **Introduction: Understanding Xbox Gift Card Codes**
 
